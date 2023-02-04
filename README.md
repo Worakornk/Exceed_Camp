@@ -1,1 +1,2 @@
-# My Student ID: 6410501102
+My name: วรกร คุณวุฒิฤทธิรณ
+My Student ID: 6410501102
